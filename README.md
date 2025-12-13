@@ -1,3 +1,3 @@
 # GAMERS
 
-Be comportable with your friends
+Be comfortable with your friends
